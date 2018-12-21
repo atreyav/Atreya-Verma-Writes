@@ -5,7 +5,7 @@ Please email atreyav@gmail.com for a copy of Atreya's resume.
 Below is an select list of stories written and more examples
 can be provided upon request via email.
 ```
-Follow [@atreya_verma](twitter.com/atreya_verma) on Twitter
+Follow [@atreya_verma](https://twitter.com/atreya_verma) on Twitter
 
 ### Samples of published works
 
