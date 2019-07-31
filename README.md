@@ -9,6 +9,10 @@ Follow [@atreya_verma](https://twitter.com/atreya_verma) on Twitter
 
 ### Samples of published works
 
+* [Who is Trevion Williams?](https://purdue.rivals.com/news/purdue-basketball-who-is-trevion-williams-)
+
+Trevion Williams breakout freshman year caught most people by surprise. His journey to Purdue, however, is a winding tale of gun violence, weight loss, family and love that explains why no one will be overlooking the Boilermaker big man going forward.
+
 * [Gabby Graves-Wake: From Taekwondo champion to Para-sled hockey gold medalist](https://www.azcentral.com/story/sports/olympics/2018/07/04/marine-veteran-excels-adaptive-sports-after-motorcycle-accident/703387002/)
 
 Gabby Graves-Wake taught herself how to walk again after a motorcycle accident left her paralyzed while she was in the Marine Corps. Her journey before and after the life-threatening injury has shown the Phoenix community the power of adaptive sports.
