@@ -1,4 +1,4 @@
-## Atreya Verma is a reporter currently earning his degree in industrial engineering at Purdue University. He has written for the Arizona Republic, Associated Press and the Purdue Exponent.
+## Atreya Verma is a freelance reporter based out of Chicago and a graduate of Purdue University. He has written for the Arizona Republic, Associated Press and the Purdue Exponent.
 
 ```
 Please email atreyav@gmail.com for a copy of Atreya's resume.
